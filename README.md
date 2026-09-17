@@ -1,5 +1,6 @@
 ## Photos and Video taken by me during the Hong Kong Disneyland's Disney Halloween Time 2026 Media Day
-https://www.youtube.com/watch?v=hrNPZzKBkaA&list=PLCyWHE04Hr0E
+https://www.youtube.com/watch?v=hrNPZzKBkaA
+https://www.youtube.com/playlist?list=PLCyWHE04Hr0E
 <img src="https://github.com/user-attachments/assets/b0a806c1-4d17-4030-8833-abcdf2216c51" />
 <img src="https://github.com/user-attachments/assets/23e5c1a5-db7f-4327-bd7a-206a0af755e5" />
 <img src="https://github.com/user-attachments/assets/0b24536a-c6b5-4763-88d3-41c19572fcad" />
@@ -16,3 +17,5 @@ https://www.youtube.com/watch?v=hrNPZzKBkaA&list=PLCyWHE04Hr0E
 <img src="https://github.com/user-attachments/assets/dbf67a6d-7015-4a72-864e-d8e456c0dc6f" />
 <img src="https://github.com/user-attachments/assets/c9cf7419-1de4-4f24-abee-db3dd800b25a" />
 <img src="https://github.com/user-attachments/assets/6f7fb986-7067-4f61-8aea-ed28923b3dba" />
+https://www.youtube.com/watch?v=hrNPZzKBkaA
+Ahttps://www.youtube.com/playlist?list%3DPLCyWHE04Hr0E
